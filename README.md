@@ -1,0 +1,1 @@
+You don't have to carry it alone. Evolve is a voice-first sanctuary that separates signal from noise. It mirrors your thoughts to untangle the static, helping you find your 'One True Step' without the weight of the grind
